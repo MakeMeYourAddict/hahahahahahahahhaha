@@ -4,7 +4,11 @@
 
 ♡ ᴅɴɪ : ᴊᴜꜱᴛ ᴛʜᴇ ᴜꜱᴜᴀʟ ᴄʀɪᴛᴇʀɪᴀ ᴛʜᴀᴛ ʏᴏᴜ ᴘʀᴏʙᴀʙʟʏ ᴋɴᴏᴡ. Just be normal idk..
 
-Otherwise, I’ll skin you alive. ִֶָ𓂃 ࣪ ִֶָ🐇་༘࿐
+Feel free to ship or sit. Don't hesitate to share your ships with me!! I really like all ships with my fav characters.
+(DEFINITELY NOT THE WEIRD STUFF, LIKE: PEDOPHILIA, ABUSE, SIBLINGS, ETC.).
+
+Otherwise, I’ll skin you alive.
+
 
 
 
